@@ -1,4 +1,4 @@
-### Olá, eu sou a Thais Anchieta 👋
+### Olá, sou a Thais Anchieta 👋
 
 
 
